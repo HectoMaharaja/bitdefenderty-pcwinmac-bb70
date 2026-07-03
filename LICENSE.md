@@ -1,4 +1,4 @@
-# 
+# Personalizado Bitdefender Total Security plugins para Mac OS | Instantáneo Bitdefender Total Security plugins para PC Windows. Con estadísticas de uso de datos y protección en tiempo real — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
